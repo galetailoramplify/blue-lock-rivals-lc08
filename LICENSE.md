@@ -1,4 +1,4 @@
-#  
+#  Experience blue lock rivals like never before with elite blue lock rivals Scripts, the #1 Script. Includes speed and silent aim for unbeatable
 
 
 
